@@ -1,2 +1,2 @@
-# L-p-11A09---Nh-m-8
+# Lop-11A09-Nhom-8
 Chuyên Tin
